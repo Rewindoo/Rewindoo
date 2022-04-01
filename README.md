@@ -1,9 +1,8 @@
 
 - I have been coding for 5 years and specialise in lua and python 
-- DEVRAZA IS A HACKER DONT TRUST HIM, DONT TRUST ANY OF HIS FRIENDS EITHER THEY STOLE MY IP AND BOOTED ME OFFLINE
+- If you would like to play val add me, SuperBigHippo#EUW
 - MIDNADIMPLE IS THE GOAT
 
-'
 
 
 
